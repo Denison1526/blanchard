@@ -1,1 +1,1 @@
- https://denison1526.github.io/blanchard /
+https://denison1526.github.io/blanchard /
